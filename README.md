@@ -1,2 +1,2 @@
 # moyaki_rip
-https://tiggerland.github.io/moyaki_rip/
+https://rakkooo.github.io/moyaki_rip/
